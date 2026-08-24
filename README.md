@@ -1,0 +1,2 @@
+# XOX
+X O X GÜVENİLİRMİ ? ? ? ?
